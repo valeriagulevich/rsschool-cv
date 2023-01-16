@@ -8,6 +8,7 @@
 **Telegram:** @ValeTesti
 
 **Discord:** @Valeron#1160
+
 [Instagram](https://www.instagram.com/valeriagulevich/)
 
 **Hello! My name is Valeria, but for friends just Valeron**
